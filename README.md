@@ -69,7 +69,7 @@ Currently studying IT while continuously improving my skills in backend developm
 
 ## ✨ Personal Motto
 
-> “Consistency beats talent when talent doesn’t work hard.”
+> “Everything passes”
 
 ---
 
